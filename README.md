@@ -1,4 +1,4 @@
-[# dendis](https://hackzworld.xyz/rocket-league-free-credits/
+(https://hackzworld.xyz/rocket-league-free-credits/
 
 ROCKET LEAGUE GENERATOR HACK CHEATS FREE 2023
 ROCKET LEAGUE GENERATOR HACK CHEATS FREE
